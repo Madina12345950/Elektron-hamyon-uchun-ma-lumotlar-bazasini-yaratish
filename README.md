@@ -1,0 +1,1 @@
+# Elektron-hamyon-uchun-ma-lumotlar-bazasini-yaratish
